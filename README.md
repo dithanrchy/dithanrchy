@@ -7,13 +7,13 @@ An organized, good listener, and ready to work together in a team. Skilled in Mo
 
 ## ✨ Get to know me!
 
-👩🏻‍💻 A Learner at **[Apple Developer Academy @Infinite Learning Batam, Indonesia](https://www.developeracademy.infinitelearning.id/)**
+👩🏻‍💻 **[Apple Developer Academy @Infinite Learning Batam, Indonesia](https://www.developeracademy.infinitelearning.id/)** Graduate
 <br>
 👩🏼‍🎓 A graduated student from **[Informatics Engineering, University of Mataram](https://if.unram.ac.id)**
 <br>
 💻 Currently, a **Swift** learner and **Machine Learning** Enthusiast
 <br>
-🦋 A **social** learner and a **book** lover, I read **books** and watch **movies** in my free time.
+🦋 A **social** learner and a **book** lover, I read **books** and watch **movies** in my leisure time.
 
 <br>
 
